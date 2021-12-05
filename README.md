@@ -1,3 +1,3 @@
 ### Buenas 🤝 Soy Tolaba Sebastian     
 
-### 🖥️ Estudiante de Analista de Sistemas. 💻
+### 🖥️ Estudiante de Analisis de Sistemas. 💻
